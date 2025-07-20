@@ -15,7 +15,7 @@ Email Me 👉 ✉️ **satyaranjanbaral76@gmail.com** for collaboration, project
 
 ## 📄 My Resume
 
-📌 [Click here to view/download my Resume](file:///C:/Users/Asus/OneDrive/Desktop/Documents/SATYARANJAN_BARAL_RESUME%20Premium1.pdf)
+📌 [Click here to view/download my Resume](https://drive.google.com/file/d/1MIWCiZP21WMZ5aGN6Z7jancKHJ7Fm5y1/view?usp=sharing)
 
 
 ## 🚧 Projects
